@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Deepak1652
+- 👋 Hi, I’m @Deepak.
 - 👀 I’m interested in BIKE RIDING AND MMA(MIX MARSHALL ARTS),TRAVELLING,BOXING.
 - 🌱 I’m currently learning B.C.A
 - 💞️ I’m looking to collaborate on ...
